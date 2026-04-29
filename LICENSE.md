@@ -1,4 +1,4 @@
-
+sol's rng new Script offers the most advanced sol's rng Script, with instant win and undetectable. Perfect for dominating any match.
 
 
 
